@@ -1,2 +1,2 @@
 # CsGoCheat
-CS:Go cheat
+CsGoCheat CsGoCheat CsGoCheat CsGoCheat CsGoCheat
